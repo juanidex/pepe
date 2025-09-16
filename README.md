@@ -1,2 +1,3 @@
 # pepe
-mi primera vez
+JUAN CARHUACHIN SULCA
+APTI
